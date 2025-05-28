@@ -19,5 +19,6 @@ It isn’t just about coding, it is about:
 
 Once you have a *solid base and you are comfortable with the skills*,  it will be simpler to expand your skill-set.<br>
 The skills you will gain from completing TOP will be the **foundation** that you will be building upon for years and will also be skills **transferable to various contexts**.<br>
+
 Once you know the *idea* and that *it is possible* to do something, actually finding out how to do that thing becomes significantly easier and is simply a Google search away most of the time.
 
